@@ -6,6 +6,7 @@ These disorders include but are probably not limited to dude idek
 - NPD
 - Autism
 - ADHD
+- OCD
   
 IF YOU THINK HAVING NPD MAKES YOU ABUSIVE DON'T TALK 2 ME... it literally does not
 Also if you're odd about disorders do not talk to me. I have disorders
